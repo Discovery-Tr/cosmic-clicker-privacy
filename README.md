@@ -1,0 +1,1 @@
+# cosmic-clicker-privacy
